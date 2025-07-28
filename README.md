@@ -10,8 +10,6 @@
 
 - 📖 I’m currently learning **machine learning/deep learning**
 
-- 🥺 I'm a **newbie** in coding 👶
-
 - 🤟 I'm interested in **coding, reading, and watching film**
 <div align="center">
   :heart_eyes: Thanks for watching my profile! Have a nice day! :wink: <br/>
